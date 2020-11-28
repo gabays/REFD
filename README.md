@@ -1,4 +1,4 @@
-# Record of Early French Drana
+# Records of Early French Drama
 
 Simon Gabay, simon.gabay[at]unige.ch
 
